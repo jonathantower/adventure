@@ -5,6 +5,7 @@ Recommended reading list:
 1. [Walden](https://www.amazon.com/Walden-Henry-David-Thoreau/dp/1505297729/ref=sr_1_1_sspa?keywords=walden&qid=1551198704&s=books&sr=1-1-spons&psc=1)
 1. [Travels with Charlie](https://www.amazon.com/John-Steinbeck-Travels-Charley-Paperback/dp/B01FOD72GM/ref=sr_1_3?keywords=Travels+with+Charlie&qid=1551198727&s=books&sr=1-3)
 1. [A Walk in the Woods](https://www.amazon.com/Walk-Woods-Rediscovering-America-Appalachian/dp/0307279464/ref=sr_1_1?keywords=A+Walk+in+the+Woods&qid=1551198752&s=books&sr=1-1)
+1. [Any other travelogue by Bill Bryson](https://www.amazon.com/s?k=bill+bryson+travel&ref=nb_sb_noss_2)
 1. [Wild](https://www.amazon.com/Wild-Found-Pacific-Crest-Trail/dp/0307476073/ref=sr_1_2?keywords=wild&qid=1551198795&s=books&sr=1-2)
 1. [Endurance](https://www.amazon.com/Endurance-Shackletons-Incredible-Alfred-Lansing/dp/0465062881/ref=sr_1_1?keywords=Endurance&qid=1551198806&s=books&sr=1-1)
 1. [Into the Wild](https://www.amazon.com/Into-Wild-Jon-Krakauer/dp/0385486804/ref=sr_1_2?keywords=Into+the+Wild&qid=1551198819&s=books&sr=1-2)

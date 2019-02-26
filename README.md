@@ -26,3 +26,8 @@ Recommended viewing list
 1. [The Long Way Down](https://www.amazon.com/gp/video/detail/B0172TT57K/ref=atv_dp_season_select_atf)
 1. [The Motorcycle Diaries](https://www.amazon.com/Motorcycle-Diaries-English-Subtitled/dp/B005KGPHZC/ref=sr_1_1?keywords=The+Motorcycle+Diaries&qid=1551199038&s=instant-video&sr=1-1)
 1. [Everest: Beyond the Limit](https://www.amazon.com/Everest-Beyond-Limit-Season-1/dp/B001NJVQ96)
+1. [Departures](https://www.netflix.com/title/80027841)
+1. [Around the World for Free](https://www.amazon.com/gp/video/detail/B07CZ3GWX4/ref=atv_hover_title)
+1. [Expedition Happiness](https://www.netflix.com/title/80224476)
+1. [The Barkley Marathons](https://www.amazon.com/gp/product/B017Y43P3S/ref=as_li_ss_tl?ie=UTF8&linkCode=sl1&tag=barkleymoviec-20&linkId=b249e87bbb47ec85e696594a8185b8d8)
+1. [Mile. Mile and a Half](https://www.amazon.com/gp/video/detail/B071231PWM/ref=pd_cbs_318_12)

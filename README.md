@@ -2,7 +2,7 @@
 My talk about our trip around the lower 48 states, and what I learned about seeing your career (and life) as an adventure
 
 Recommended reading list:
-1. [Walden](https://www.amazon.com/Walden-Henry-David-Thoreau/dp/1505297729/ref=sr_1_1_sspa?keywords=walden&qid=1551198704&s=books&sr=1-1-spons&psc=1
+1. [Walden](https://www.amazon.com/Walden-Henry-David-Thoreau/dp/1505297729/ref=sr_1_1_sspa?keywords=walden&qid=1551198704&s=books&sr=1-1-spons&psc=1)
 1. [Travels with Charlie](https://www.amazon.com/John-Steinbeck-Travels-Charley-Paperback/dp/B01FOD72GM/ref=sr_1_3?keywords=Travels+with+Charlie&qid=1551198727&s=books&sr=1-3)
 1. [A Walk in the Woods](https://www.amazon.com/Walk-Woods-Rediscovering-America-Appalachian/dp/0307279464/ref=sr_1_1?keywords=A+Walk+in+the+Woods&qid=1551198752&s=books&sr=1-1)
 1. [Wild](https://www.amazon.com/Wild-Found-Pacific-Crest-Trail/dp/0307476073/ref=sr_1_2?keywords=wild&qid=1551198795&s=books&sr=1-2)
